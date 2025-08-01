@@ -47,7 +47,9 @@ Apasionado por el análisis de datos, la ciencia aplicada y la generación de va
 ## 📫 Contacto
 
 *¿Quieres conectar o tienes alguna pregunta?*  
-[Agrega aquí tu LinkedIn o correo electrónico si lo deseas]
++57 3128839461
+jesid1diaz@gmail.com
+www.linkedin.com/in/jesid-diaz-b00184240 
 
 ---
 
